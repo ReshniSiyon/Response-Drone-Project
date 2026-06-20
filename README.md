@@ -46,7 +46,7 @@ Author
 
 
 
-Reshni
+Reshni S
 
-B.Tech CSE (AI \& ML)
+B.E CSE (AI & ML)
 
